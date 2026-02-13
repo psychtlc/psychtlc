@@ -24,7 +24,7 @@ or
 [@unoTheSaint](https://www.instagram.com/unothesaint/)
 Instagram for our menagerie of furry family and foster animals!
 
-![2 cats snuggling!](/assets/cats.jpeg)
+![2 cats snuggling!](/assets/cats.png)
 
 ## My Leadership Blueprint
 
