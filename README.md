@@ -8,24 +8,6 @@ At the center of my leadership blueprint is a simple premise:
 
 **Humans drive systems. Not the other way around**
 
-## Not Found On My Resume
-
-I'm a mom of 5, and while that doesn't DEFINE me, parenting certainly informs my perspective. It also ensures I am learning something new every day and is a constant reminder to honor growth in whatever form it may take. 
-
-I was the first in my family to attend college. None of my grandparents made it past fourth grade. Perspective matters to me. So does access.
-
-I’ve spent my career moving from psychobiology to enterprise technology leadership — always fascinated by systems, but even more fascinated by the humans inside them.
-
-I have lived in Maryland my whole life, but my calling is a remote fishing village in the Dominican Republic or some place like it.  
-
-I bake my own bread, compost, and raise chickens and ducks (as pets and egg providers).  So far every animal born on our little homestead has been a boy so things get a little angsty each Spring. Check out my 
-[@blendedshire](https://www.instagram.com/blendedshire/)
-or 
-[@unoTheSaint](https://www.instagram.com/unothesaint/)
-Instagram for our menagerie of furry family and foster animals!
-
-![2 cats snuggling!](/assets/cats.png)
-
 ## My Leadership Blueprint
 
 There is no universal formula for building great teams. Every group is composed of individuals shaped by distinct identities, histories, and lived experiences.
@@ -78,6 +60,24 @@ I deeply value expertise. If you know more than I do about something (and you li
 My goal is to clear obstacles, organize all the things, and build and streamline process. In general: to make your (work) life easier, clearer and less stressful. It cannot be overstated how much I value your knowledge and expertise and my desire to learn things from you.  
 
 What's going on in your life doesn't stop just because you're at work. Please don't feel you can't talk about something because it's 'not work related'.
+
+## Not Found On My Resume
+
+I'm a mom of 5, and while that doesn't DEFINE me, parenting certainly informs my perspective. It also ensures I am learning something new every day and is a constant reminder to honor growth in whatever form it may take. 
+
+I was the first in my family to attend college. None of my grandparents made it past fourth grade. Perspective matters to me. So does access.
+
+I’ve spent my career moving from psychobiology to enterprise technology leadership — always fascinated by systems, but even more fascinated by the humans inside them.
+
+I have lived in Maryland my whole life, but my calling is a remote fishing village in the Dominican Republic or some place like it.  
+
+I bake my own bread, compost, and raise chickens and ducks (as pets and egg providers).  So far every animal born on our little homestead has been a boy so things get a little angsty each Spring. Check out my 
+[@blendedshire](https://www.instagram.com/blendedshire/)
+or 
+[@unoTheSaint](https://www.instagram.com/unothesaint/)
+Instagram for our menagerie of furry family and foster animals!
+
+![2 cats snuggling!](/assets/cats.png)
 
 ## Favorites
 
